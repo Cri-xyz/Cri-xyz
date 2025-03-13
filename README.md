@@ -12,7 +12,7 @@ im 25yo(2025 26) my name is al, live in indonesia learned just 4 language. Indon
 - **Red Hat Hacker** 🔴 - Fighting back against __ ykykyk
 - **Grey Hat Hacker** ⚫⚪ - mistake finder frfr and make money from it
 - **Hacktivist** 🎭 - expose something in socmed and become anonymous(i feel im the main character)
-- **Whistleblower Hacker** 📢 - i dont want in jail pls fbi dont hunt me im innocent
+- **Whistleblower Hacker** 📢 - i dont want in jail pls fbi dont hunt me im innocent(Exposing Injustice)
 
 ---
 
